@@ -1,6 +1,5 @@
-# 하찮은 코딩쟁이
+# 디댕이예요
 
-디댕이에요
 저 잔디 채우기 열심히 할거에요
 
-<img width="1295" height="730" alt="AA191962-DC36-4B49-B368-A0762A862340" src="https://github.com/user-attachments/assets/2519e1f9-f80a-4996-b809-39cfa01a5af5" />
+<img width="1202" height="1287" alt="AASDDSFA2R12" src="https://github.com/user-attachments/assets/b28e2ab1-67e7-4273-b37e-9f153738b937" />
